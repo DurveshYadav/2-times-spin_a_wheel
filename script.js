@@ -1,4 +1,4 @@
-alert('You can only spin the wheel onces')
+alert('You can only 2-times spin the wheel onces')
 
 // Code for spin
 
