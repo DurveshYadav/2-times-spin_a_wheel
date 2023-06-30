@@ -12,15 +12,19 @@
 ### Drive screenshot of before, 1st and 2nd spin images links
 
 ![Screenshot (before spin)](https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link)
+https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link
 
 ### Before SPIN
 
 ![Screenshot (before spin)](https://drive.google.com/file/d/1C7m_JpgijLxZ-ud5cqHNzkiPL49Yev6f/view?usp=drive_link)
+https://drive.google.com/file/d/1C7m_JpgijLxZ-ud5cqHNzkiPL49Yev6f/view?usp=drive_link
 
 ### 1st SPIN (Give Try Again)
 
 ![Screenshot (1st spin)](https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link)
+https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link
 
 ### 2nd SPIN (Get The Gift Card and Stop)
 
 ![Screenshot (2nd spin)](https://drive.google.com/file/d/1K24Y4_cLrIOUzJOPRyKq0D5LG-qkveKL/view?usp=drive_link)
+https://drive.google.com/file/d/1K24Y4_cLrIOUzJOPRyKq0D5LG-qkveKL/view?usp=drive_link
