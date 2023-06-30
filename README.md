@@ -9,9 +9,6 @@
 ## Screenshots of the project :
 
 ```I've used the Assets given by Coding Blocks because I made this project to be a part of their challenge.```
-### Drive screenshot of before, 1st and 2nd spin images links
-
-https://drive.google.com/drive/folders/14NJJJ6iuVPWO6z1vtAjq3McFn64Cat3x?usp=sharing
 
 ### Before SPIN
 
