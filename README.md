@@ -1,4 +1,4 @@
-# SpinTheWheel
+# Spin The Wheel
 
 > [Click to see project](https://2-times-spin-a-wheel-by-durvesh-yadav.netlify.app/)
 
@@ -14,10 +14,10 @@
 
 https://drive.google.com/file/d/1C7m_JpgijLxZ-ud5cqHNzkiPL49Yev6f/view?usp=drive_link
 
-### 1st SPIN (Give Try Again)
+### 1st Time SPIN (Give Try Again for Spin)
 
 https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link
 
-### 2nd SPIN (Get The Gift Card and Stop)
+### 2nd Time SPIN (Get The Gift Card and Stop)
 
 https://drive.google.com/file/d/1K24Y4_cLrIOUzJOPRyKq0D5LG-qkveKL/view?usp=drive_link
