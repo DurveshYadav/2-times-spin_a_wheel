@@ -12,13 +12,12 @@
 
 ### Before SPIN
 
-![Screenshot (121)](https://user-images.githubusercontent.com/61161878/84373235-e8d98f80-abf9-11ea-8b02-f0928f681d7a.png)
-![Screenshot (121)](https://github.com/DurveshYadav/Images_Logo/blob/main/before%20spin.png)
+![Screenshot (before spin)](https://drive.google.com/file/d/1C7m_JpgijLxZ-ud5cqHNzkiPL49Yev6f/view?usp=drive_link)
 
 ### 1st SPIN (celebrating the prize)
 
-![Screenshot (122)](https://user-images.githubusercontent.com/61161878/84373252-ed9e4380-abf9-11ea-8515-a07e17297899.png)
-![Screenshot (122)](https://github.com/DurveshYadav/Images_Logo/blob/main/1st%20spin.png)
+![Screenshot (1st spin)](https://drive.google.com/file/d/1yFEj_tKh1JjwS8hl5gW5OuAvKxxMJzBr/view?usp=drive_link)
 
 ### 2nd SPIN (celebrating the prize)
-![Screenshot (122)](https://github.com/DurveshYadav/Images_Logo/blob/main/2nd%20spin.png)
+
+![Screenshot (2nd spin)](https://drive.google.com/file/d/1K24Y4_cLrIOUzJOPRyKq0D5LG-qkveKL/view?usp=drive_link)
